@@ -1,1 +1,0 @@
-# bimji.github.io
